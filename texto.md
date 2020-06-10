@@ -37,5 +37,5 @@ Ahora su significación a cambiado para componer un espacio de memoria y que tie
 
 desde que el humano a  tenido la capacidad de crear mundos posibles por medio de la técnica o el arte, ha vivido en una doble relación con la realidad, la creación de mundos virtuales es una constante humana, sin embargo con la ciber-realidad digital hemos desarrollado una relación casi que democrática, y la civilización está inmersa dentro de dos realidades, estas imágenes son una proyección de lo anteriormente dicho, puesto que las plazas de contacto real están vacías mientras que los foros, los chats lo grupos de redes sociales viven en una constante conexión, cambiando así la manera de relación por conexión entre humanos afectando de diferentes maneras la conciencia y autoconciencia de la humanidad misma.
 
-Edgar Danilo Gutierrez
+Edgar Danilo Gutierrez y
 Juan Sebastian Villalobos
