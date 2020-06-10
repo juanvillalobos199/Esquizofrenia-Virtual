@@ -8,9 +8,9 @@ Apoyados en la plataforma virtual Skyline, buscamos, desde la observación de la
 
 Según los cambios efectuados por el aislamiento social presenta una modificación en el espacio físico y en el hombre que construye simbióticamente dicho espacio, el espacio , el cual es un concepto generado por la relación entre el hombre y el medio físico es modificado a un espacio olvidado y vacío, un espacio extraño a diferencia de sus características de hábitat de anteriores tiempos, Además en el sujeto que construye el objeto de espacio surgen también modificaciones, en este caso por la ausencia de relación con lo espacios físicos, dicho fenómeno es la esquizofrenia virtual.
 
-[Madrid](https://github.com/juanvillalobos199/Esquizofrenia-Virtual/blob/master/madrid.JPG)
+![Madrid](https://github.com/juanvillalobos199/Esquizofrenia-Virtual/blob/master/madrid.JPG)
 
-[Roma](https://github.com/juanvillalobos199/Esquizofrenia-Virtual/blob/master/roma.JPG)
+![Roma](https://github.com/juanvillalobos199/Esquizofrenia-Virtual/blob/master/roma.JPG)
 
 ### ANÁLISIS y CONCLUSIONES
 
