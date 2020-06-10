@@ -10,7 +10,7 @@ Según los cambios efectuados por el aislamiento social presenta una modificaci�
 
 [imagen 1](https://github.com/juanvillalobos199/Esquizofrenia-Virtual/blob/master/madrid.JPG)
 
-[imagen 2]()
+[imagen 2](https://github.com/juanvillalobos199/Esquizofrenia-Virtual/blob/master/roma.JPG)
 
 ### ANÁLISIS y CONCLUSIONES
 
